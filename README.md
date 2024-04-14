@@ -1,0 +1,13 @@
+https://discord.gg/u4TvjtcGSk
+
+Private source base
+Price: 200$
+
+Aimbot tab: https://imgur.com/a/UkV53O7 (prediction is automatically enabled)
+Player ESP tab: https://imgur.com/a/VAJ866Q 
+World ESP tab: https://imgur.com/v1lZCdX
+Misc tab: https://imgur.com/DUfvY33
+ 
+Comes with driver (no source) and mapper (no source)
+Auto updates via dumping offsets
+Undetected 
